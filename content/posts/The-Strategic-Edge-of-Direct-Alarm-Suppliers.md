@@ -214,7 +214,7 @@ Athenalarm जैसे डायरेक्ट सप्लायर्स क
 
 इस विकसित परिदृश्य में, डायरेक्ट अलार्म सप्लायर्स बल्क सिक्योरिटी सिस्टम्स के प्रमुख स्रोत बन जाएंगे — विशेष रूप से अंतरराष्ट्रीय खरीदारों और बड़े पैमाने पर डिप्लॉयमेंट्स के लिए।
 
-![Athenalarm फैक्टरी 1](https://athenalarm.com/wp-content/uploads/2025/12/Athenalarm-facory-14.jpg)
+![Athenalarm फैक्टरी 1](https://athenalarm.com/wp-content/uploads/2025/12/Athenalarm-facory-13.jpg)
 
 ## VIII. डायरेक्ट अलार्म सप्लायर्स के साथ संलग्न होने के व्यावहारिक कदम
 
@@ -256,7 +256,7 @@ Athenalarm जैसे डायरेक्ट सप्लायर्स क
 
 इन कदमों का पालन करके, प्रोक्योरमेंट टीम्स मूल्य को अधिकतम कर सकती हैं, जोखिम को न्यूनतम कर सकती हैं और मिशन-क्रिटिकल सिक्योरिटी डिप्लॉयमेंट्स को कुशलतापूर्वक और विश्वसनीय रूप से सफल बना सकती हैं।
 
-![Athenalarm फैक्टरी 2](https://athenalarm.com/wp-content/uploads/2025/12/Athenalarm-facory-13.jpg)
+![Athenalarm फैक्टरी 2](https://athenalarm.com/wp-content/uploads/2025/12/Athenalarm-facory-07.jpg)
 
 ## IX. निष्कर्ष
 
